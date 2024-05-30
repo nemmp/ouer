@@ -1,6 +1,6 @@
 # yeezy380水蜜桃满天星
 
-<a href="https://8h9e.vip/">>>>>>>>>点/此/进/入/观/看/<<<<<<<<</a>
+<<hr/> <a href="https://github.com/nemmp/jaok/issues/2">👉👉👉♥♥点此进入♥观看入口👈👉👉</a><hr/>
 
 yeezy380水蜜桃满天星
 的笑了一下：“美sè，在大多数强者眼中，只是工具而已。”
